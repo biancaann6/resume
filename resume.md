@@ -14,10 +14,3 @@ https://www.mines.edu/
     - Coursework in physics, computer science, and data science
 
 
-# Skills
-
-
-# Relevant Coursework
-
-
-# Projects
