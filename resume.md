@@ -6,6 +6,7 @@
 
 https://www.mines.edu/
 
+![image](https://github.com/biancaann6/resume/assets/129909596/aaf442f8-0dfa-4fc3-b6cb-489ba09876d1)
 
 # Education
 
